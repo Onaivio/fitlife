@@ -10,4 +10,4 @@
 If you Like follow me up on twitter to see more Website like this. [@OkomayinOnaivi](https://twitter.com/OkomayinOnaivi)
 If you Like connect to me on Linkedln. [Onaivi Okomayin](https://www.linkedin.com/in/onaivi-okomayin-732b82241/)
 
-![preview img](/preview.png)
+![preview img](/fitlife.png)
